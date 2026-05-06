@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with blue lock rivals top Scripts, the #1 Script. Includes auto-farm and no cooldown for unbeatable
 
 
 
